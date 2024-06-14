@@ -1,1 +1,1 @@
-tanio skóry nie sprzedam
+
